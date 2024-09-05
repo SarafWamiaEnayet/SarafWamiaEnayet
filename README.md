@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SarafWamiaEnayet
+- 👀 I’m interested in web development, graphic designing and video editing
+- 🌱 I’m currently learning web development
+- 😄 Pronouns:She/her
